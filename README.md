@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HeenaShaikh1993
-- 👀 I’m interested in learning new things and keep myself technologically updated
+- 👀 I’m interested in learning new things and keeping myself technologically updated
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 9320281213/ heena.moinshaikh93@gmail.com
